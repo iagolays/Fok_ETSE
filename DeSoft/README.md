@@ -1,1 +1,5 @@
-
+- O **profe é moi majo**, pero enrrollase como unha foking persiana.
+- Por eso motivo as **teoricas non rentan**.
+- O **proxecto non é difícil**, a veces non está claro o que hai que facer para a entrega correspondente porque fala demasiado tamen nas prácticas.
+- Os exercicios de ao largo do curso non son tampouco do outro mundo e valora ben.
+- Se nas prácticas lle preguntas unha duda vaiche dar un podcast de 1 hora (sen exaseracións, pero polo menos resolverache a dúbida).
